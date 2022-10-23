@@ -1,3 +1,2 @@
-### Hello :slightly_smiling_face:
 
-- ⚡ Fun fact: 
+### Hello :slightly_smiling_face:
